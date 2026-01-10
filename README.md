@@ -1,2 +1,2 @@
-## Visit my webiste: https://c1x.games
-yo yo
+I dont do much on here but....
+## Check out my projects: https://c1x.games
